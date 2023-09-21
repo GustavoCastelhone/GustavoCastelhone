@@ -3,7 +3,7 @@
 
 estou estudando javascript na [alura](https;//www.alura.com.br)
 utilizo este espaço para compartilhar meus projetos e minhas ideias ☁️ 
-eu não sei oque falar mais ¯\_(ツ)_/¯
+eu não sei oque falar mais  ¯\_(ツ)_/¯
 
 ### vocẽ pode entrar em contato comigo !!!! 📫
 instagram @Castelhon3
